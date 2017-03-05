@@ -1,0 +1,1 @@
+https://www.google.com.pe/search?q=grace+hopper&rlz=1C1KMZB_enPE589PE590&espv=2&biw=1366&bih=662&source=lnms&tbm=isch&sa=X&ved=0ahUKEwiOiMv9t8DSAhXNdSYKHZ75DeoQ_AUIBigB#tbm=isch&q=grace+hopper+meme&*&imgrc=TWMhFQExV6w76M:
